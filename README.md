@@ -1,0 +1,3 @@
+# TUU-171
+## Бай Ваньсинь Туу-171 03.03.2024 Computer control technologiesin technical systems
+репозиторий для.....
